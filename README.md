@@ -1,1 +1,1 @@
-# CITC13
+# CITC 1300 project page
